@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Fatima641
 - 👀 I’m interested in ...Electronic games
-- 🌱 I’m currently learning ...Various sports
+- 🌱 I’m currently learning ...Various sports .
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ...she has
